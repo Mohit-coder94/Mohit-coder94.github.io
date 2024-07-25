@@ -74,8 +74,7 @@ After every mistake and lie, we should immediately seek forgiveness from God. We
 ### Day 3 :-
 #### Date :- 12-07-2024
 On the third day of induction program, I attend the classes of maths and peer interaction. This is my first day of classes in this College.I enjoy this day.
-
-#### Peer interaction canva class
+#### :- Peer interaction canva class
 - In the class of peer interaction of canva our seniors of 2nd year teach us about various functions and features of canva and we are doing with them the practical. We made our projects. The canva class is very interesting.
  ![canva](canva.png)
 
