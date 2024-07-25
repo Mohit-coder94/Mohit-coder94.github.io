@@ -29,7 +29,7 @@ My name is Mohit kumar,and i am from Abohar.I really like programming and coding
 ### Day 1 :-
 #### Date :- 10-07-2024
 
-My college journey began with listening to kirtan at the campus Gurdwara Sahib. It felt really good to receive blessings before starting something new. After that, we sat in the auditorium and listened to speeches from the guests on the first day. It was a nice way to kick off our journey.
+My college journey began with listening to kirtan at the campus Gurdwara Sahib. It felt really good to receive blessings before starting something new. After that, we sat in the auditorium and listened to speeches from the guests on the first day. 
 ### Guests of Day 1 
 #### 1. Pr. Dr. Sehijpal Singh
 - Pr. Dr. Sehijpal Singh Welcomed us to the GNDEC campus and introduce us about the campus facilites and benefits.The cheif guest was greeted with warmth and enthusiasm as they took the stage. Their presence added a sepcial touch to the begining of our college jouney,making the day evern more memeorable.
@@ -44,7 +44,6 @@ His words resonated with respect and wisdom, guiding us towards a proactive and 
 
 #### 4. SSP Rajeshwer Singh
 - SSP Rajeshwar Singh inspired us to always choose the path of kindness and helping others. Every good thing we do, and every bad thing too, always matters. He encouraged us to embrace four essential phrases:
-
 1. I am Sorry
 2. Please forgive me
 3. Thank you
@@ -57,7 +56,6 @@ After every mistake and lie, we should immediately seek forgiveness from God. We
 ### Guests of Day 2 
 #### 1. Dr. Arvind Dhingra
 - Today, we learned about the various societies and clubs on our college campus. They introduced us to SCIE, TSTE, E2S2 events, SAE, ISHRAI, ASME, ACM, PFA, CSI, the Data Science Club, Parwaaz Club, Live Wire Club, Causmic Club, English Club, ITian Club, and many more. Each group shared their goals and the benefits of joining them. Dr. Arvind Dhingra invited 22 students to the stage for a team strategy game, giving us a chance to introduce ourselves and experience personal and professional growth. Dr. Arvind Dhingra tells us about the type of memberships:-
-
 1. Member
 2. Active Member
 3. Executive Member
