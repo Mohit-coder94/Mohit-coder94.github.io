@@ -1,5 +1,5 @@
-de# Mohit-coder94.github.io
-# Activity report of Student Induction Program 2024
+# Mohit-coder94.github.io
+## Activity report of Student Induction Program 2024
 
 |Date|Resource person|Discription|
 |----------|----------|-----------|
