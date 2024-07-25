@@ -83,7 +83,7 @@ On the third day of induction program, I attend the classes of maths and peer in
 
 ### Day 4 :-
 #### Date :- 15-07-2024
-### Speakers of Day 2 and their lessons
+### Speakers of Day 2 
 #### 1. Dr. Randhir Singh
 - In this short session with Randhir Sir, he showed us how to create a GitHub page.
 #### 2. Dr. Pyare Lal Garg
@@ -98,3 +98,7 @@ On the third day of induction program, I attend the classes of maths and peer in
 #### 4. Mr. Pancham  
 - He taught us about non-verbal communication, body language, and behavior. His skill in reading facial expressions, gestures, and the nuances of effective communication was impressive. Mr. Pancham’s interactive style made the learning engaging and practical, helping us better understand non-verbal cues and improve our interpersonal skills. He also shared inspiring stories and lessons from his leadership experiences in various societies. Later, he introduced us to the SAE Club, which offers exciting and creative activities that left me truly amazed.
   
+### Day 5 :-
+#### Date :- 16-07-2024
+#### :- English Activity class
+- In the class of English Activity there is our english based quiz in the hall there is two team of two sections section C and section D .The quiz is very enjoyable.In the next lecture there are 6 teams of both the sections and quiz is related to general knowledge this is very enjoyful moment for us.
