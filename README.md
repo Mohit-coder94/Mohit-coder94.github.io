@@ -78,3 +78,5 @@ On the third day of induction program, I attend the classes of maths and peer in
 - In the class of peer interaction of canva our seniors of 2nd year teach us about various functions and features of canva and we are doing with them the practical. We made our projects. The canva class is very interesting.
  ![canva](canva.png)
 
+#### :- Maths calss
+- Assistant professor of Mathematics, Mr.Neeraj kumar sir take the classs of maths. He teach basic of derivatives and formulas . We solve many problems and learn jayfully.
