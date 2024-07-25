@@ -69,7 +69,6 @@ After every mistake and lie, we should immediately seek forgiveness from God. We
 - Dr. H.S. Rai, the Controller of Examinations, shared his view that exams are opportunities to shine. He also talked about his journey to the Google Summer of Code with his students. He then invited coding enthusiasts to join the CodeGNE group and encouraged us to create a GitHub page using markdown and start blogging.
 
 - 3Ps for Success:-
-
 1. Passion
 2. Persistence
 3. Patience
