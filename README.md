@@ -10,6 +10,7 @@ My name is Mohit kumar,and i am from Abohar.I really like programming and coding
 ### Class :- 12th
 #### From :- Meritorious School, Bathinda
 
+##### Marks details :-
 | Subject | Obtained Marks | Total marks |
 | ------ | ------- | ------- |
 | Maths | 100 | 100 |
