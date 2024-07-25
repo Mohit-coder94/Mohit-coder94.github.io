@@ -80,3 +80,21 @@ On the third day of induction program, I attend the classes of maths and peer in
 
 #### :- Maths calss
 - Assistant professor of Mathematics, Mr.Neeraj kumar sir take the classs of maths. He teach basic of derivatives and formulas . We solve many problems and learn jayfully.
+
+### Day 4 :-
+#### Date :- 15-07-2024
+### Speakers of Day 2 and their lessons
+#### 1. Dr. Randhir Singh
+- In this short session with Randhir Sir, he showed us how to create a GitHub page.
+#### 2. Dr. Pyare Lal Garg
+- A wise sage shares his wisdom through poetry, encouraging us to believe in our potential. He teaches that with determination, any dream can be achieved. Embrace your passions, stay positive, and see challenges as chances to grow. Everyone faces failure, but resilience brings success. Choose hope over despair and focus on self-improvement. Your path to greatness starts from within.
+#### 3. Mr. Sony Goyal
+- Mr. Sony Goyal, a fantastic educator, gave an inspiring session on effective planning and personal excellence in engineering education. He stressed the importance of putting your full effort into every task and encouraged us to view the “science stream” more broadly instead of calling it “non-medical.” He advised focusing on one task at a time for the best results and urged us to learn with both our minds and hearts. Mr. Goyal encouraged us to ask questions whenever we have doubts. His passionate and engaging approach left a strong impression, motivating students to pursue academic excellence and personal growth with renewed enthusiasm.
+
+- Always Remember
+1. Give your 100%
+2. Do what you love, love what you do
+3. Should have Efficiency and Compatibility
+#### 4. Mr. Pancham  
+- He taught us about non-verbal communication, body language, and behavior. His skill in reading facial expressions, gestures, and the nuances of effective communication was impressive. Mr. Pancham’s interactive style made the learning engaging and practical, helping us better understand non-verbal cues and improve our interpersonal skills. He also shared inspiring stories and lessons from his leadership experiences in various societies. Later, he introduced us to the SAE Club, which offers exciting and creative activities that left me truly amazed.
+  
