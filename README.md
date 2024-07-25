@@ -77,4 +77,5 @@ On the third day of induction program, I attend the classes of maths and peer in
 
 #### Peer interaction canva class
 - In the class of peer interaction of canva our seniors of 2nd year teach us about various functions and features of canva and we are doing with them the practical. We made our projects. The canva class is very interesting.
+ ![canva](canva.png)
 
