@@ -102,3 +102,11 @@ On the third day of induction program, I attend the classes of maths and peer in
 #### Date :- 16-07-2024
 #### :- English Activity class
 - In the class of English Activity there is our english based quiz in the hall there is two team of two sections section C and section D .The quiz is very enjoyable.In the next lecture there are 6 teams of both the sections and quiz is related to general knowledge this is very enjoyful moment for us.
+
+  ### Day 6 :-
+  #### Date :- 17-07-2024
+  #### :- Maths class
+  - On the day 6 of induction program the first lecture is maths lecture and Mr.Sukhminder singh teach again the basic of derivatives and at the last he gave us home work of 15 sums.
+ 
+    #### :- UHV
+    Mrs.Nisha Mam 
