@@ -184,5 +184,4 @@ The professors also provided details about the campus placement and training cel
 #### UHV classes 
  On our 10th day there is our 2 classes of UHV continuesly by different professiors and the revised and continue the chapters.
 
- #### In Auditorium 
  
