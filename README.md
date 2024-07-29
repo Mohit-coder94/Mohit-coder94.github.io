@@ -117,4 +117,29 @@ On the third day of induction program, I attend the classes of maths and peer in
 - The next day there is our 2nd class of UHV back to back and she covered almost 2 chapters in the class .She teaches about the society of a human and how to behave with others in the society.
 
 #### :- Peer interaction about college 
-- Our seniors take the class of peer interaction and he said all about the college website and semester exams also . How to maintain discipline in the college and wirh the teachers .
+- Our seniors take the class of peer interaction and he said all about the college website and semester exams also . How to maintain discipline in the college and wirh the teachers.
+
+##### In Auditorium
+#### Dr. Harwinder Singh
+- Dr. Harwinder Singh, the ANO of NCC, introduced us to the valuable benefits of joining NCC. He outlined both the physical and mental advantages, explaining that NCC provides army training while also helping to shape our personality, build confidence and communication skills, enhance leadership qualities and teamwork, and, most importantly, teach discipline.
+##### Benefits of opting NCC includes:
+1. SAHARA Scholarship for NCC cadets
+2. Expenses of uniforms and camps are beared by the government
+3. Chance to get selected in armed forces
+4. NDA
+5. Besides being position in armed forces, NCC also provides us life skills that serves us whole life.
+
+#### Er. Jasvir Singh Grewal
+- He discussed "The Power of Service: NSS and Nation Building," highlighting how the National Service Scheme (NSS) enables students to contribute to community development and national progress. NSS volunteers work on education, health awareness, environmental conservation, disaster relief, and social justice. Participation in NSS not only helps others but also builds valuable life skills and leadership qualities. He encouraged students to join NSS, emphasizing its role in linking academic learning with real-world problem-solving and fostering a more inclusive and prosperous nation. He also invited those who truly want to serve humanity to get involved.
+##### Work Done by NSS:-
+1. Afforestation
+2. AIDS awareness
+3. Blood donation camps
+4. cleaniness of our environment
+5. Disaster Manangement etc.
+##### Benefits of NSS:-
+1. Personality Development.
+2. It helps in acquiring leadership qualities and democratic attitude.
+3. It developer a sense of involvement in the task of nation building.
+4. It helps in developing positive attitude, self-confidence, courage & patience.
+5.   
