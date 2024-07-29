@@ -142,4 +142,16 @@ On the third day of induction program, I attend the classes of maths and peer in
 2. It helps in acquiring leadership qualities and democratic attitude.
 3. It developer a sense of involvement in the task of nation building.
 4. It helps in developing positive attitude, self-confidence, courage & patience.
-5.   
+
+### Day 8 :-
+#### Date :- 19-07-2024
+##### In Auditorium
+#### Er. Kanwardeep Kalra
+- Er. Kanwardeep Grewal introduced us to ***"The Journey from Campus to Corporate and Building a Future Beyond the Classroom."*** She emphasized that soft skills are as important as technical skills; without them, our technical abilities are less effective. We also watched a role play by seniors that demonstrated how to behave during interviews and how to manage our confidence in front of an interviewer.
+##### What are soft skills?
+- Basic etiquatee
+- Personality traits
+
+#### Dr. Jaswinder Singh
+- This session with Jaswinder Sir was both engaging and entertaining. He started by asking the meaning of ***"Sat Sri Akal."*** Although he isn’t a magician by profession, he performed magic tricks and explained the science behind them. He demonstrated the importance of balance by making a table and taught us how to count the bones in the human body. Dr. Jaswinder Singh, the in-charge of IAPT and a Shiksha Ratan awardee, is a remarkable personality. He explained that everything in the world is connected to mathematics and provided clear examples. He introduced us to the concepts of induction and conduction, which can seem tough and boring in class, but he made them easy and enjoyable. He also gave us a fun trick to remember the number of bones in the human body and their distribution.
+  
