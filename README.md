@@ -108,5 +108,13 @@ On the third day of induction program, I attend the classes of maths and peer in
   #### :- Maths class
   - On the day 6 of induction program the first lecture is maths lecture and Mr.Sukhminder singh teach again the basic of derivatives and at the last he gave us home work of 15 sums.
  
-    #### :- UHV
-    Mrs.Nisha Mam 
+    #### :- UHV class
+    Mrs.Nisha Mam takes our first class of UHV and she reaches very gently. she covered one and half chapter in the class.
+    
+### Day 7 :- 
+#### Date :- 18-07-2024
+#### :- UHV class 
+- The next day there is our 2nd class of UHV back to back and she covered almost 2 chapters in the class .She teaches about the society of a human and how to behave with others in the society.
+
+#### :- Peer interaction about college 
+- Our seniors take the class of peer interaction and he said all about the college website and semester exams also . How to maintain discipline in the college and wirh the teachers .
