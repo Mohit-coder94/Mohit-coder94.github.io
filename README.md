@@ -154,4 +154,11 @@ On the third day of induction program, I attend the classes of maths and peer in
 
 #### Dr. Jaswinder Singh
 - This session with Jaswinder Sir was both engaging and entertaining. He started by asking the meaning of ***"Sat Sri Akal."*** Although he isn’t a magician by profession, he performed magic tricks and explained the science behind them. He demonstrated the importance of balance by making a table and taught us how to count the bones in the human body. Dr. Jaswinder Singh, the in-charge of IAPT and a Shiksha Ratan awardee, is a remarkable personality. He explained that everything in the world is connected to mathematics and provided clear examples. He introduced us to the concepts of induction and conduction, which can seem tough and boring in class, but he made them easy and enjoyable. He also gave us a fun trick to remember the number of bones in the human body and their distribution.
-  
+
+  ### Day 9 :-
+#### Date :- 22-07-2024
+##### In Auditorium
+#### Er. Dr. SB Singh
+- Sir asked us to write down about your self like your name your fathers name your mothers name your senior secondary school name and your dream for which you come in college and what will we do to complete our dreams and what we expect from college after four years these things will make us introduced by our truth because we cant tell lie to ourselves. They also teach us very helpful life lessons.
+#### Dr. Pushpinder Singh
+- This session with Sir is very informative and helpful. Sir shared some valuable life lessons with us. He explained that to succeed, we need to be consistent and innovative. If we have a strong desire to achieve something, we can reach our goals with focus and concentration. He used the example of a woodpecker, which concentrates on one spot of a tree until it makes a hole. Sir also emphasized the importance of believing in ourselves and having faith in God. He said that humility is essential for survival. For instance, a bamboo tree bends during floods and survives, while big trees that don't bend often fall. This shows that being flexible helps us get through tough times.
